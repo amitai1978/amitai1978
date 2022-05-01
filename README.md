@@ -1,7 +1,7 @@
 AMITAI SHIBOLET
 DATA ANALYST 
 
-PROFILE
+
 As an experienced therapist I bring to the field of data analysis the qualities of accurate
 assessment and a deep understanding of human behavior.
 I am an autodidact by nature with excellent learning skills and a quest for growth and
